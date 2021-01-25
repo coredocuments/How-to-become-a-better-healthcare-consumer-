@@ -18,16 +18,27 @@ Get a Good Health Insurance Plan – Be a Smart Health Care Consumer
 You need to get a good health insurance plan you can afford that covers the majority of health-related issues. But before you get it, here’s a checklist of the essential offerings that you should consider when purchasing a plan:
 
 •	The premium amount that you need to pay for different levels of coverage and deductibles.
+
 •	Are Exchange Advanced Premium Tax Credits (discounted premium) available to you for non-group health insurance?
+
 •	Do you qualify for a Health Care Sharing Ministry plan such as MediShare?
+
 •	Does your employer offer a Core Section 125 Premium, Core HSA, Core FSA and/or Core HRA, ICHRA or QSEHRA for tax-free premium, medical and dental benefit options? 
+
 •	Annual deductible and coinsurance you have to pay. What’s an acceptable deductible and out-of-pocket expense risk?
+
 •	What office and hospital co-pays will you have to pay?
+
 •	The expenses covered by the insurance plan.
+
 •	Number of healthcare providers available in your network.
+
 •	Additional incentives for wellness.
+
 •	Is a tax-free bank Health Savings Account and High Deductible Health Plan right for you?
+
 •	Is a Section 125 Premium Only Plan and Health Flexible Savings Account available at work to pay premium and out-of-pocket medical tax-free?
+
 Apart from these, you should go through the insurance plan brochure to find any additional offerings & associated costs.  This will enable you to make an informed decision which in turn helps you to become a better healthcare consumer.
 
 Leverage a Section 125 POP, FSA, HSA, HRA, ICHRA or QSEHRA
@@ -36,15 +47,25 @@ If your employer sponsors a Cafeteria Plan or HRA at work you can easily use a S
 
 These are a part of Consumer Directed Healthcare or CDH Account. These accounts are funded pre-tax which means you save money on taxes. But that’s not all! 
 Apart from common expenses, these accounts can be leveraged to take care of:
+
 •	Individual Health Insurance
+
 •	Health Care Sharing Ministries
+
 •	Eye exams
+
 •	Prescription medicines
+
 •	Dental exams
+
 •	Dental cleanings
+
 •	Ambulance services
+
 •	Acupuncture services
+
 •	Purchase bandages
+
 •	Many over-the-counter items and medications
 
 So, the Section 125 Premium, Health FSA, HSA or HRA plans can come in very handy when you face unexpected healthcare issues. You can also use these funds to spend on relevant medications, medical expenses & procedures that are in your best interests but not covered by your health plan. 
